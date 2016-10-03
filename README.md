@@ -4,7 +4,7 @@ https://www.facebook.com/groups/906048196159262/
 線上nodejs 讀書會
 https://www.facebook.com/groups/207139586323090/		
 
-線上 docker 讀書會 		
+線上 docker 讀書會
 https://www.facebook.com/groups/750311598438135/		
 
 線上swift 讀書會
