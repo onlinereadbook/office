@@ -31,6 +31,9 @@ https://www.facebook.com/groups/930921220347797/
 線上 go 讀書會
 https://www.facebook.com/groups/1288435607857868/
 
+線上讀書會-迷你黑客松
+https://www.facebook.com/groups/1274976625880806/
+
 
 線上 日語 讀書會
 https://www.facebook.com/groups/1113446758690591/
