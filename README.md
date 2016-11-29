@@ -22,13 +22,8 @@ https://www.facebook.com/groups/568032146690485/
 線上 vue.js 讀書會
 https://www.facebook.com/groups/616281401885574/		
 
-線上 iot 讀書會
+線上 maker 讀書會
 https://www.facebook.com/groups/842415582524882/
-
-
-線上 meteor 讀書會 https://www.facebook.com/groups/930921220347797/
-
-線上 go 讀書會 https://www.facebook.com/groups/1288435607857868/
 
 線上讀書會-迷你黑客松 https://www.facebook.com/groups/1274976625880806/
 
@@ -43,6 +38,15 @@ https://www.facebook.com/groups/842415582524882/
 
 線上 chatbot 讀書會 https://www.facebook.com/groups/148210218987647/
 
+
+--未來限定--
+
+線上 meteor 讀書會 https://www.facebook.com/groups/930921220347797/
+
+線上 go 讀書會 https://www.facebook.com/groups/1288435607857868/
+
 線上 xamarin & C# 讀書會 https://www.facebook.com/groups/611143505736213/
+
+線上 韓語 讀書會  https://www.facebook.com/groups/583103035208789/ 
 
 線上 創業 讀書會 https://www.facebook.com/groups/1746983635561623/
