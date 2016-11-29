@@ -25,42 +25,24 @@ https://www.facebook.com/groups/616281401885574/
 線上 iot 讀書會
 https://www.facebook.com/groups/842415582524882/
 
-線上讀書會 官方網站
 
-https://github.com/onlinereadbook/officewebsite
+線上 meteor 讀書會 https://www.facebook.com/groups/930921220347797/
 
-線上 meteor 讀書會
-https://www.facebook.com/groups/930921220347797/
+線上 go 讀書會 https://www.facebook.com/groups/1288435607857868/
 
-線上 go 讀書會
-https://www.facebook.com/groups/1288435607857868/
-
-線上讀書會-迷你黑客松
-https://www.facebook.com/groups/1274976625880806/
+線上讀書會-迷你黑客松 https://www.facebook.com/groups/1274976625880806/
 
 
-線上 日語 讀書會
-https://www.facebook.com/groups/1113446758690591/
+線上 日語 讀書會 https://www.facebook.com/groups/1113446758690591/
 
-線上 英文 讀書會
-https://www.facebook.com/groups/1781798848754929/
+線上 英文 讀書會 https://www.facebook.com/groups/1781798848754929/
 
-線上 ui/ux art 讀書會
-https://www.facebook.com/groups/670166459806094/  
+線上 ui/ux art 讀書會 https://www.facebook.com/groups/670166459806094/  
 
-線上 ui/ux art 讀書會
-https://www.facebook.com/groups/670166459806094/  
+線上 越南語 讀書會 https://www.facebook.com/groups/683209238508614/
 
-線上 越南語 讀書會
-https://www.facebook.com/groups/683209238508614/
+線上 chatbot 讀書會 https://www.facebook.com/groups/148210218987647/
 
-線上 chatbot 讀書會
+線上 xamarin & C# 讀書會 https://www.facebook.com/groups/611143505736213/
 
-https://www.facebook.com/groups/148210218987647/
-
-線上 xamarin & C# 讀書會
-
-https://www.facebook.com/groups/611143505736213/
-
-線上 創業 讀書會 
-https://www.facebook.com/groups/1746983635561623/
+線上 創業 讀書會 https://www.facebook.com/groups/1746983635561623/
