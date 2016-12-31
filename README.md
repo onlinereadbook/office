@@ -38,15 +38,25 @@ https://www.facebook.com/groups/842415582524882/
 
 線上 chatbot 讀書會 https://www.facebook.com/groups/148210218987647/
 
-
---未來限定--
-
 線上 meteor 讀書會 https://www.facebook.com/groups/930921220347797/
 
-線上 go 讀書會 https://www.facebook.com/groups/1288435607857868/
 
 線上 xamarin & C# 讀書會 https://www.facebook.com/groups/611143505736213/
 
-線上 韓語 讀書會  https://www.facebook.com/groups/583103035208789/ 
 
 線上 創業 讀書會 https://www.facebook.com/groups/1746983635561623/
+
+
+線上 function programing 讀書會 https://www.facebook.com/groups/1898421300388775/
+
+尚未開跑
+
+線上 韓語 讀書會  https://www.facebook.com/groups/583103035208789/ 
+
+線上 go 讀書會 https://www.facebook.com/groups/1288435607857868/
+
+線上 資安 讀書會 https://www.facebook.com/groups/339873396394898/
+
+歡迎屏東人加入
+
+屏東 程式,美術,創客 讀書會 https://www.facebook.com/groups/1752608771668306/
