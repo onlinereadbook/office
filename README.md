@@ -20,8 +20,7 @@ https://www.facebook.com/groups/295363950811103 線上 mongoDB讀書會
 
 https://www.facebook.com/groups/842415582524882 線上 maker 讀書會
 
-
-https://www.facebook.com/groups/122758611513912 線上go讀書會
+https://www.facebook.com/groups/1288435607857868 線上go讀書會
 
 https://www.facebook.com/groups/930921220347797 線上 meteor 讀書會
 
