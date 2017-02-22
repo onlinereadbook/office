@@ -42,7 +42,7 @@ https://www.facebook.com/groups/148210218987647 線上 chatbot 讀書會
 
 https://www.facebook.com/groups/683209238508614 線上越南語 讀書會
 
-https://www.facebook.com/groups/1752608771668306屏東 程式,美術,創客 讀書會
+https://www.facebook.com/groups/1752608771668306 屏東程式,美術,創客 讀書會
 
 https://www.facebook.com/groups/611143505736213 線上 xamarin & C# 讀書會
 
